@@ -1,3 +1,3 @@
 ## Purpose
 
-The purpose of our organization is to discover our purpose and then iteratively record it here.
+To create, adopt and live new social, economic and environmental blueprints that will benefit all life on this planet.
